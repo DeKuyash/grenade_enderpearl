@@ -2,6 +2,4 @@
 
 Это аддон для портфолио.
 
-https://youtu.be/A2iJp9UtlCk
-
-https://disk.yandex.ru/d/4gGNZT7tLWop0g
+https://youtu.be/eTVf8ReM5XY
